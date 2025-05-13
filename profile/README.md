@@ -2,6 +2,8 @@
 
 If you're looking for a game that’s **weird, funny, and insanely addictive**, then **Poop Clicker Unblocked** is your next obsession. As strange as it sounds, this game has taken over classrooms and browsers with its *crude humor, simple gameplay*, and *endless clicking madness*. Available now on **Unblocked Games 67**, it's one of the most talked-about **clicker games unblocked** today!
 
+## <a href="https://1kb.link/j26SCy">👉 Click To Play Poop Clicker Unblocked 👈</a>
+
 ---
 
 ### 🎮 What Is Poop Clicker?
